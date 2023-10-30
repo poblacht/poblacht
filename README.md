@@ -1,2 +1,5 @@
-[![poblachts's GitHub stats](https://github-readme-stats.vercel.app/api?username=poblacht&cache_seconds=7200&show_icons=true&include_all_commits=true&count_private=true)](https://github.com/poblacht)
-[![poblacht's Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=poblacht&layout=donut)](https://github.com/poblacht)
+# fúm
+some rando from ireland that likes to make stuff in his free time
+
+# cad atá á dhéanamh agam?
+i do anything really, but mostly revolving around roblox soooooooooooooooooooooooooooooo
